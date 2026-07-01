@@ -1,5 +1,8 @@
-i like watching smps alot i have so much fun and never get bored! shout-out to outcasts smp for getting me into smps especially wenzo, myles, and tazoh (i miss outcasts alot)
-
 <div align="center">
-  i also follow people i think are cool
+  shoutout blue characters
+</div>
+<div align="center">
+  <picture>
+    <img width="430" height="260" alt="gorillaz-2d" src="https://github.com/user-attachments/assets/f836f872-17ee-4d68-bf23-a925e4711f4d" />
+  </picture>
 </div>
